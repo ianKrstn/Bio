@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Kristian Budi Pradana Putra
+- 👀 I’m interested in new things
+- 🌱 I’m currently learning in informatics study program
+- 💞️ I’m looking to collaborate on some projects
+- 📫 You can reach me on instagram (@iankrstn_), twitter (@ianKrstn_), and on facebook (Kristian Putra) 
